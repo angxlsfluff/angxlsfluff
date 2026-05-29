@@ -6,6 +6,10 @@
       <td>
         <details> 
           <summary> $${\color{#DCC7C4}　 ۶ৎ　\space ८　\space ꒰ঌ \space sі𝗍ᥱ𝓼 \space ଓ　\space　!!\space　ꔫა　}$$ </summary><br>
+                    <a href="https://rentry.co/angxlpup">matching rentry with my sweet lil sis
+@pupsome ! 
+                </a> <img src="https://files.catbox.moe/w6xdgi.gif"> <br>
+          <br>
           <a href="https://guns.lol/angxlsfluff">guns</a> <br>
           <a href="https://angxlsfluff.atabook.org">atabook</a> <br>
           <a  href="https://en.pronouns.page/@angxlsfluff">pronounspage</a> <br>
