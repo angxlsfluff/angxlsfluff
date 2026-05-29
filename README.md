@@ -1,4 +1,3 @@
-can y'all genuinely stop coming in my ata talkin bout some I'm copying someone or I'm being copied ?? ( also please leave them alone too, cuz y'all ridiculous for sobbing on pixels matchin. ) 
 <img src="https://files.catbox.moe/y9oozh.png" width="375" align="left" alt="furscent">
 
 <p align="center">
