@@ -24,7 +24,7 @@
     <tr>
       <td>
 <img src="https://files.catbox.moe/126779.gif">
-$${\color{#C1C0AD} \space　 \space ࣪   \space    ︵ֺ\space︵  ㅤ ㅤ❀  \space    ۪ ⠀⠀ ⪩⪨⠀\space　 }$$ <br>
+$${\color{#C1C0AD} \space ࣪  　\space ︵ֺ\space︵  ㅤ ㅤ❀  \space　  ۪ ⠀⠀ ⪩⪨⠀\space　 }$$ <br>
 $${\color{#BEB1A6}　୧⠀\space⠀𓈒⠀\space⠀ ֺ   \space 𝜗ৎ \space   ࣭  \space  𝑘᥆ȷі 　\space ּ ֶָ֢. \space ᥲі𝑘᥆ }$$  <br>
 $${\color{#B995A0}　ᨳଓ  \space    ۪  5𝗍ᥱᥱᥒ \spaceㅤ  ࣪ ྀ  \space    ࡛    \space   𓏏𓏏  \space    𓂃 }$$ <br>
 $${\color{#B56C8A}　ꪒ  ꪒ    ࿁ ⠀ ˚⠀    ︩︪ ׅsһᥱ 　\space һᥱr ೀ⠀ ⠀}$$ <img src="https://files.catbox.moe/o8fr2d.gif"> <br> 
